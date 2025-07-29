@@ -8,3 +8,8 @@
 ohiscot13/ohiscot13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+-resolved'))''$ -PRSNL--VXTS-v---#only,..,why¿knot.EdX?··"next week"::¿CE cs CE↓//:
+
+
+SECURITY.md
